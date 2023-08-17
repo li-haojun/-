@@ -1,2 +1,2 @@
 # konwledge
-try to be better
+努力变好的zzc
